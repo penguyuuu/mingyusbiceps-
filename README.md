@@ -1,2 +1,3 @@
 # mingyusbiceps-
-for school 
+
+i loveaamanda    
