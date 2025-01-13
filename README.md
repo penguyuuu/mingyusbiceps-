@@ -1,3 +1,1 @@
-# mingyusbiceps-
-first changes 
-i loveaamanda    
+ok
